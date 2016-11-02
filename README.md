@@ -1,2 +1,0 @@
-# sasaki
-sasaki
